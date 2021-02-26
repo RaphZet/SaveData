@@ -1,3 +1,3 @@
 # SaveData
  
- Ini save data
+ Ini save data lanjut story >>> ending B
